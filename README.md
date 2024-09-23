@@ -5,10 +5,10 @@
 -  My Profile in Telegram @dc12i
 Welcom Bro
 
-Husseim .
+Hussein.
 
 
-https://github.com/user-attachments/assets/822cc7c6-20c4-460a-b2e6-32ff2e40ed93
+
 
 
 
